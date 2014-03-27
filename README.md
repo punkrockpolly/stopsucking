@@ -1,4 +1,7 @@
+brbx reunion in june!
+management not invited.
 
-Yeah Jack, you really ought to
-stopsucking and hang out more.
-===========
+details forthcoming
+
+rsvp:
+* @strcrzy
