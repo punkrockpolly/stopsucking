@@ -5,6 +5,4 @@ details forthcoming
 
 rsvp:
 * @strcrzy
-
-
-i'm crashing your party. will bring whiskey and miniskirt.
+* @punkrockpolly -> i'm crashing your party. will bring whiskey and miniskirt.
